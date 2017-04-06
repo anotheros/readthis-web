@@ -1,3 +1,6 @@
+加qq群[![](http://pub.idqqimg.com/wpa/images/group.png "100000p.com官方群")](http://shang.qq.com/wpa/qunwpa?idkey=bc60b852e963704404153f225800257ab64dc5727cab6e777166f7d76046ba7a)
+
+
 ![](http://wx3.sinaimg.cn/mw690/625e5890ly1fed168ivzvj216o1kw7md.jpg)
 ![](http://wx1.sinaimg.cn/mw690/625e5890ly1fed16cmzj9j216o1kwnfw.jpg)
 ![](http://wx4.sinaimg.cn/mw690/625e5890ly1fed16h6renj216o1kwqlz.jpg)
